@@ -62,7 +62,7 @@ Suggestions, improvements, and ideas are always welcome!
 
 Rudra Raj Singh
 
-* GitHub: @YOUR-USERNAME
+* GitHub: @its-rudRa
 
 ⸻
 
